@@ -1,2 +1,2 @@
-# Alexandra-kupwara.com
+# Alexandrakupwara.com
 For school 
